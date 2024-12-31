@@ -1,2 +1,2 @@
 # my-kargah
-tamrin katgah
+tamrin kargah
